@@ -1,4 +1,4 @@
-# 
+# top trader joe trading bot | front-running-detection + market-making offers the most advanced trader joe trading bot, with front-running-detection and market-making. Ideal for
 
 
 
